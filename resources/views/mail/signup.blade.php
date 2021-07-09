@@ -1,0 +1,1 @@
+<h2>Cảm ơn bạn đã đăng ký tài khoản tại shop chúng tôi</h2>
